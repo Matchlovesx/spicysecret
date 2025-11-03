@@ -1,1 +1,1 @@
-wwww.spicysecret.live
+www.spicysecret.live
